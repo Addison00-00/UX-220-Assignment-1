@@ -1,1 +1,2 @@
-## Becoming The Incredible Individual Currently Am.
+## Becoming "Addison" & Making Her Proud.🤍
+
