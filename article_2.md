@@ -1,10 +1,10 @@
 ## Exploring Hobbies & Interest!🤩🧠🫀
-Anime: Cyberpunk Edgerunners💢
+Favourite Anime: Cyberpunk Edgerunners💢
 ![Cyberpunk: Edgerunners (Season 1)](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Cyberpunk_Edgerunners(1).jpg)
 ![Cyberpunk: Edgerunners (Season 2)](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Cyberpunk_Edgerunners(2).jpg)
 
-- FAVOURITE Anime Of ALL TIME!🤩
-
+- Animated and created my OWN "Anime".
+  
 Clubs & Involvement: Wilfrid Laurier Brantford Theatre Club!🎭
 ![Was A "Gossip" In Jane Austin's Sense & Sensibility!](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Theatre%20Club%20(Gossips).jpg)
 
