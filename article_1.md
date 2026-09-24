@@ -1,1 +1,2 @@
-## Graduated University With Honours & Was A Valedictorian At Convocation. 
+## Graduated Wilfrid Laurier University With Honors Degree & Valedictorian.🎓
+
