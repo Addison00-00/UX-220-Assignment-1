@@ -11,4 +11,5 @@ Anime: Cyberpunk Edgerunners💢
 BTS: ARMY Forever!💜
 !["We Were Only Seven"](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/BTS.jpeg)
 
-- Attended BTS Concert (Toronto Roger's Stadium) 
+- Attended BTS Concert (Toronto Roger's Stadium) in August, 2026
+- Got to see my seven, and the love of my life; Kim Taehyung.🧸
