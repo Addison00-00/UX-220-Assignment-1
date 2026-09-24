@@ -3,6 +3,8 @@ Favourite Anime (Of All Time): Cyberpunk Edgerunners💢
 ![Cyberpunk: Edgerunners (Season 1)](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Cyberpunk_Edgerunners(1).jpg)
 ![Cyberpunk: Edgerunners (Season 2)](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Cyberpunk_Edgerunners(2).jpg)
 
+- Animated and created my very own "Indie" Anime.
+  
 BTS: ARMY Forever!💜
 !["We Were Only Seven"](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/BTS.jpeg)
 
