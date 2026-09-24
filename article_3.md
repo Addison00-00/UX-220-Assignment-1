@@ -1,1 +1,1 @@
-## Current Hobbies & Interests Developed: Arts (Animation & Drawing), Music (Church Pipe Organ, Singing, & Violin Lessons), etc. & Pursuing Higher Education: Going Back To School For Entertainment And Film Studies.
+## Hobbies & Interest!🧠🫀
