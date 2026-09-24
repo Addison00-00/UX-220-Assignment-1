@@ -1,15 +1,7 @@
-## Hobbies & Interest!🧠🫀
-Anime: Cyberpunk Edgerunners💢
-![Cyberpunk: Edgerunners (Season 1)](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Cyberpunk_Edgerunners(1).jpg)
+## Pursued Higher Education While Keeping In Touch!♾️
+F.R.I.E.N.D.S😎
+![BTM Friends](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/BTM%20Friends.jpg)
+BTM (Business Technology Management) Friends...
 
-- FAVOURITE Anime Of ALL TIME!🤩
-
-![Cyberpunk: Edgerunners (Season 2)](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Cyberpunk_Edgerunners(2).jpg)
-
-- EXCITED FOR SECOND SEASON!🔥
-
-BTS: ARMY Forever!💜
-!["We Were Only Seven"](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/BTS.jpeg)
-
-- Attended BTS Concert (Toronto Roger's Stadium) in August, 2026
-- Got to see my seven, and the love of my life; Kim Taehyung.🧸
+![UXD Friends](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/UXD%20Friends.JPG)
+...UX (User Experience Design) Friends.
