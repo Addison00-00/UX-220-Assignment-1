@@ -8,4 +8,8 @@ Clubs & Involvement: Wilfrid Laurier Brantford Theatre Club!🎭
 
 - ...with the Wilfrid Laurier (Brantford Campus) University's Theatre Club!
 
-F.R.I.N.D.S.
+F.R.I.E.N.D.S😎
+
+![BTM Friends](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/BTM%20Friends.jpg)
+
+- Friends I made when I was in BTM (Business Technology Management).
