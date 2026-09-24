@@ -1,1 +1,1 @@
-## Graduating University With Honours (Hopefully) & Being A Valedictorian At My Convocation. WIP
+## Graduated University With Honours & Was A Valedictorian At Convocation. 
