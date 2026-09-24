@@ -1,4 +1,4 @@
-## Uni-Life!🤩
+## Exploring Hobbies & Interest!🤩🧠🫀
 Clubs & Involvement: Wilfrid Laurier Brantford Theatre Club!🎭
 ![Was A "Gossip" In Jane Austin's Sense & Sensibility!](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Theatre%20Club%20(Gossips).jpg)
 
