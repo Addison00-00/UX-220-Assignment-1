@@ -13,3 +13,7 @@ F.R.I.E.N.D.S😎
 ![BTM Friends](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/BTM%20Friends.jpg)
 
 - Friends I made when I was in BTM (Business Technology Management).
+
+![UXD Friends](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/UXD%20Friends.JPG)
+
+- Friends I made when I switched to UX (User Experience Design).
