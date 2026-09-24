@@ -8,8 +8,7 @@ Favourite Anime (Of All Time): Cyberpunk Edgerunners💢
 BTS: ARMY Forever!💜
 !["We Were Only Seven"](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/BTS.jpeg)
 
-- Attended more concerts.
-- Became a frequent concert-goer.
+- Attended more concerts and became a frequent concert-goer.
 
 Clubs & Involvement: Wilfrid Laurier Brantford Theatre Club!🎭
 ![Was A "Gossip" In Jane Austin's Sense & Sensibility!](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Theatre%20Club%20(Gossips).jpg)
