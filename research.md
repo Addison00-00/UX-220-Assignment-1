@@ -18,8 +18,6 @@ secures and maintains achievement behavior; promotes internalization of the conn
 a pattern of motivation associated with failure
 avoidance.
 
-
-
 *Goal Setting and the Autonomous Learner*
 - *Autonomy: "the ability to take responsibility
 for one's learning."*
@@ -30,3 +28,8 @@ learners develop responsible attitudes and autonomy.
 - autonomy is not innate but
 develops through learner training; that is, learners need to be taught learning strategies and how
 to use them.
+
+- *Goal Setting:* regarded as one of the strategies that encourages learner autonomy; affects performance and enhances achievement.
+
+- appropriate goal setting, along with timely
+and specific feedback, can lead to higher achievement, better performance, a high level of self-efficacy, and self-regulation. 
