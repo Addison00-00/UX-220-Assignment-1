@@ -18,7 +18,8 @@ secures and maintains achievement behavior; promotes internalization of the conn
 a pattern of motivation associated with failure
 avoidance.
 
-*Goal Setting and theAutonomous Learner*
+
+*Goal Setting and the Autonomous Learner*
 - *Autonomy: "the ability to take responsibility
 for one's learning."*
 
