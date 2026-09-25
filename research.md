@@ -10,6 +10,10 @@ Reflecting on the definitions and explanations of both, I knew my personal goals
 
 However, what contrasts my goals to these student's goals in the study, is that my goals are "personal" and a "long-term investment," for myself. Whereas, most of these students goals are "short-term," because they're focused on learning Spanish in a classroom setting and just to pass, which sometimes may be forced upon them by the curriculum, therefore their focus and motivation may not be on a high level as mine.
 
+This article reports the findings of a 5-year quasi-experimental study examining goal setting and student achievement in the high school Spanish language classroom. The implementation of LinguaFolio, a portfolio that focuses on student self-assessment, goal setting, and collection of evidence of language achievement. 
+
+This study examines abilities of student setting goals; what are their targets, their action-plans, and progress, while focusing on their achievements
+
 ## Notes: For Me.☺️
 
 *Goal Orientation*
