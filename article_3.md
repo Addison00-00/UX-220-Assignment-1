@@ -8,7 +8,7 @@ F.R.I.E.N.D.S😎
 
 BTM (Business Technology Management) Friends
 
-![UXD Friends](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/UXD%20Friends.JPG)
+![UXD Friends](UXD.JPG)
 UX (User Experience Design) Friends.
 
 - ...and kept in touch with close-friends!
