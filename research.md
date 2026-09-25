@@ -1,7 +1,7 @@
 ## My Research
 Conducted in a high school Spanish language classroom, this study examines the abilities of students setting goals, identifying their targets, action plans, and progress, while focusing on their achievements and factors that contributed to those achievements, such as their abilities, amount of effort and persistency invested, and their intensity of motivation to succeed.
 
-Researchers defined two types of goal orientations: mastery and performance goals. Considering I am task-focused oriented, with an intense motivation to persistently learn and improve ultimately, such that my goals are closely aligned with the mastery orientation.
+Researchers defined two types of goal orientations: mastery and performance goals. The first goal fosters a motivational pattern and task-focused personality that persistently learns and improves, while the latter's motivation is driven by egoism and fear of failure.
 
 However, my goals contrast with the students, as they are long-term and personalized.
 ## Notes: For Me.☺️
