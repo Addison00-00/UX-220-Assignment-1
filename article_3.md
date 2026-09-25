@@ -1,6 +1,6 @@
 ## Pursued Higher Education & Keeping In Touch!♾️
 ![Never Stop Learning](Higher_Education.JPG)
-- Went back to University to pursue higher education and started a Master's Degree...
+- Went back to University to pursue higher education and successfully completed a Master's Degree...
   
 F.R.I.E.N.D.S😎
 
