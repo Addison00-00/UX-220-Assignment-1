@@ -8,5 +8,6 @@
 on learning and improving and an ability-focused
 orientation with an extrinsic focus on external re-
 wards (e.g., getting good grades and doing better
-than other students)
-
+than other students); *Mastery Goals.*
+  - performance
+or ego-involving goals 
