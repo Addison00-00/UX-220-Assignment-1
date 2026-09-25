@@ -1,5 +1,9 @@
 ## My Research
 
+(Write a paragraph comparing and contrasting your goals with the academic goals/learning outcomes.)
+
+
+
 ## Notes: For Me.☺️
 
 *Goal Orientation*
