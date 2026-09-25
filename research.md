@@ -19,3 +19,12 @@ a pattern of motivation associated with failure
 avoidance.
 
 *Goal Setting and theAutonomous Learner*
+- *Autonomy: "the ability to take responsibility
+for one's learning."*
+
+- emphasizes the importance of self-regulated and autonomous learning; important that
+learners develop responsible attitudes and autonomy.
+
+- autonomy is not innate but
+develops through learner training; that is, learners need to be taught learning strategies and how
+to use them.
