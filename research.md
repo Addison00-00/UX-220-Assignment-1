@@ -3,3 +3,9 @@
 ## Notes: For Me.☺️
 
 *Goal Orientation*
+- two general goal orientations students can adopt:
+a task-focused orientation with an intrinsic focus
+on learning and improving and an ability-focused
+orientation with an extrinsic focus on external re-
+wards (e.g., getting good grades and doing better
+than other students). 
