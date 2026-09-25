@@ -18,6 +18,5 @@ deeper level of engagement promotes internalization of the connection between ef
 - *Performance Goals:* fosters
 a pattern of motivation associated with failure
 avoidance.
-
-*Goal \\ Setting \\ and \\the \\ Autonomous \\ Learner*
+*Goal Setting and theAutonomous Learner*
 - 
