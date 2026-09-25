@@ -11,7 +11,7 @@ However, what contrasts my goals to these student's goals in the study, is that 
 
 This article reports the findings of a 5-year quasi-experimental study examining goal setting and student achievement in the high school Spanish language classroom. The implementation of LinguaFolio, a portfolio that focuses on student self-assessment, goal setting, and collection of evidence of language achievement. 
 
-This study examines the abilities of student setting goals; what are their targets, their action-plans, and progress, while focusing on their achievements and factors that contributed to those achievements; their abilities, attitudes and behaviours, how much efforts and persistency was invested, and finally, their intensity and quantity of motivation to succeed. 
+This study examines the abilities of student setting goals; identifying their targets, action-plans, and progress, while focusing on their achievements and factors that contributed to those achievements; such as their abilities, attitudes and behaviours, amount of efforts and persistency was invested, and their intensity of motivation to succeed.
 
 ## Notes: For Me.☺️
 
