@@ -11,3 +11,13 @@ wards (e.g., getting good grades and doing better
 than other students); *Mastery Goals.*
   - performance
 or ego-involving goals 
+
+- *Mastery Goals:* fosters a motivational pattern as-
+sociated with a deeper level of engagement that
+secures and maintains achievement behavior. This
+deeper level of engagement promotes internaliza-
+tion of the connection between effort and achieve-
+ment.
+- *Performance Goals:* fosters
+a pattern of motivation associated with failure
+avoidance.
