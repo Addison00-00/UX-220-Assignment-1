@@ -1,12 +1,4 @@
 ## My Research
-
-(Write a paragraph comparing and contrasting your goals with the academic goals/learning outcomes.)
-
-
-However, what contrasts my goals to these student's goals in the study, is that my goals are "personal" and a "long-term investment," for myself. Whereas, most of these students goals are "short-term," because they're focused on learning Spanish in a classroom setting and just to pass, which sometimes may be forced upon them by the curriculum, therefore their focus and motivation may not be on a high level as mine.
-
-This article reports the findings of a 5-year quasi-experimental study examining goal setting and student achievement in the high school Spanish language classroom. The implementation of LinguaFolio, a portfolio that focuses on student self-assessment, goal setting, and collection of evidence of language achievement. 
-
 This study examines the abilities of student setting goals; identifying their targets, action-plans, and progress, while focusing on their achievements and factors that contributed to those achievements; such as their abilities, amount of efforts and persistency invested, and their intensity of motivation to succeed.
 
 Researchers defined two types of *Goal Orientations: Mastery* and *Performance Goals.* Considering I am task-focused oriented, with an intense motivation to persistently learn and improving ultimately, such that my goals closely aligned with the *Mastery* Orientation.
