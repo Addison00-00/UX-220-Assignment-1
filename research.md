@@ -19,6 +19,5 @@ deeper level of engagement promotes internalization of the connection between ef
 a pattern of motivation associated with failure
 avoidance.
 
-
-*Goal Setting and theAutonomous Learner*
+*Goal \\ Setting \\ and \\the \\ Autonomous \\ Learner*
 - 
