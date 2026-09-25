@@ -11,6 +11,7 @@ This study examines the abilities of student setting goals; identifying their ta
 
 Researchers defined two types of *Goal Orientations: Mastery* and *Performance Goals.* Considering I am task-focused oriented, with an intense motivation to persistently learn and improving ultimately, such that my goals closely aligned with the *Mastery* Orientation.
 
+However, my goals contrasts with the students, because they are more long-term and **personalized-focused**, than short-term...
 ## Notes: For Me.☺️
 
 *Goal Orientation*
