@@ -2,4 +2,4 @@
 
 ![Mini Version](Mini_Me.jpg)
 
-- My Personal Journey: Finding Happiness; Living the Fullest; Never Stop Growing & Learning.
+- My Personal Journey: finding happiness; living life the fullest; never stop growing and learning.
