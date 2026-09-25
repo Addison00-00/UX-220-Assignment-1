@@ -19,6 +19,7 @@ a pattern of motivation associated with failure
 avoidance.
 
 
+
 *Goal Setting and the Autonomous Learner*
 - *Autonomy: "the ability to take responsibility
 for one's learning."*
