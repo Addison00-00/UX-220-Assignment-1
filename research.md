@@ -2,7 +2,6 @@
 
 (Write a paragraph comparing and contrasting your goals with the academic goals/learning outcomes.)
 
-This Longitudinal Study focuses on Goal Setting; Target Identification, Action-Plan Building, and Progress Tracking, and Self-Assessment; Ability, Attitude & Behaviours, Efforts & Persistency, and Motivation.
 
 Such that, there were two types of "Goal Orientation" were defined: *Mastery Goals* and *Performance Goals.* 
 
@@ -12,7 +11,7 @@ However, what contrasts my goals to these student's goals in the study, is that 
 
 This article reports the findings of a 5-year quasi-experimental study examining goal setting and student achievement in the high school Spanish language classroom. The implementation of LinguaFolio, a portfolio that focuses on student self-assessment, goal setting, and collection of evidence of language achievement. 
 
-This study examines abilities of student setting goals; what are their targets, their action-plans, and progress, while focusing on their achievements
+This study examines the abilities of student setting goals; what are their targets, their action-plans, and progress, while focusing on their achievements and factors that contributed to those achievements; their abilities, attitudes and behaviours, how much efforts and persistency was invested, and finally, their intensity and quantity of motivation to succeed. 
 
 ## Notes: For Me.☺️
 
