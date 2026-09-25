@@ -2,7 +2,11 @@
 
 (Write a paragraph comparing and contrasting your goals with the academic goals/learning outcomes.)
 
+This Longitudinal Study focuses on Goal Setting; Target Identification, Action-Plan Building, and Progress Tracking, and Self-Assessment; Ability, Attitude & Behaviours, Efforts & Persistency, and Motivation.
 
+Such that, there were two types of "Goal Orientation" were defined: *Mastery Goals* and *Performance Goals.* 
+
+Reflecting on the definitions and explanations of both, I knew my personal goals are
 
 ## Notes: For Me.☺️
 
