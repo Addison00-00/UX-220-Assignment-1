@@ -6,8 +6,7 @@ Favourite Anime (Of All Time): Cyberpunk Edgerunners💢
 - Successfully animated, created, and scripted my very own "Indie" (Individual) Anime.
   
 BTS: ARMY Forever!💜
-!["We Were Only Seven"](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/BTS.jpeg)
-
+!["We Were Only Seven"](BTS.jpeg)
 - Attended more concerts and became a frequent concert-goer.
 
 Clubs & Involvement: Wilfrid Laurier Brantford Theatre Club!🎭
