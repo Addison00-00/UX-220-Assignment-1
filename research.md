@@ -9,4 +9,4 @@ on learning and improving and an ability-focused
 orientation with an extrinsic focus on external rewards (e.g., getting good grades and doing better
 than other students); *Mastery Goals.*
 - performance
-or ego-involving goals.
+or ego-involving goals
