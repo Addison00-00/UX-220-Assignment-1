@@ -32,6 +32,8 @@ to use them.
 - *Goal Setting:* regarded as one of the strategies that encourages learner autonomy; affects performance and enhances achievement.
 
 - appropriate goal setting, along with timely
-and specific feedback, can lead to higher achievement, better performance, a high level of self-efficacy, and self-regulation. 
+and specific feedback, can lead to higher achievement, better performance, a high level of self-efficacy, and self-regulation.
 
-*Discussion And Conclusion*
+## Citation
+
+MOELLER, A. J., THEILER, J. M., & WU, C. (2012). Goal Setting and Student Achievement: A Longitudinal Study. The Modern Language Journal, 96(2), 153–169. http://www.jstor.org/stable/41684067
