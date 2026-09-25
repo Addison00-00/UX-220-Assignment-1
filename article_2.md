@@ -10,7 +10,7 @@ BTS: ARMY Forever!💜
 - Attended more concerts and became a frequent concert-goer.
 
 Clubs & Involvement: Wilfrid Laurier Brantford Theatre Club!🎭
-![Was A "Gossip" In Jane Austin's Sense & Sensibility!](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Theatre%20Club%20(Gossips).jpg)
+![Was A "Gossip" In Jane Austin's Sense & Sensibility!](Theatre_Club_(Gossips).jpg)
 Played a "Gossip" in Jane Austin's Sense & Sensibility...
 
 ![Wilfrid Laurier Brantford Theatre Club Group Photo!](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Theatre%20Club%20(Group%20Picture).jpg)
