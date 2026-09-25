@@ -6,7 +6,9 @@ This Longitudinal Study focuses on Goal Setting; Target Identification, Action-P
 
 Such that, there were two types of "Goal Orientation" were defined: *Mastery Goals* and *Performance Goals.* 
 
-Reflecting on the definitions and explanations of both, I knew my personal goals are
+Reflecting on the definitions and explanations of both, I knew my personal goals are strongly aligned and represented as *Mastery Goals*, since I am bigger-picture-task-focused person with a detailed-oriented personality. Where I have an intense focus on doing by best, and getting good grades, and never stop learning and improving--clearly shows that I have a high-level of motivation. 
+
+However, what contrasts my goals to these student's goals in the study, is that my goals are "personal" and a "long-term investment," for myself. Whereas, most of these students goals are "short-term," because they're focused on learning Spanish in a classroom setting and just to pass, which sometimes may be forced upon them by the curriculum, therefore their focus and motivation may not be on a high level as mine.
 
 ## Notes: For Me.☺️
 
