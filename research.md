@@ -1,9 +1,9 @@
 ## My Research
-This study examines the abilities of student setting goals; identifying their targets, action-plans, and progress, while focusing on their achievements and factors that contributed to those achievements; such as their abilities, amount of efforts and persistency invested, and their intensity of motivation to succeed.
+This study examines the abilities of students setting goals, identifying their targets, action plans, and progress, while focusing on their achievements and factors that contributed to those achievements, such as their abilities, amount of effort and persistency invested, and their intensity of motivation to succeed.
 
-Researchers defined two types of *Goal Orientations: Mastery* and *Performance Goals.* Considering I am task-focused oriented, with an intense motivation to persistently learn and improving ultimately, such that my goals closely aligned with the *Mastery* Orientation.
+Researchers defined two types of goal orientations: mastery and performance goals. Considering I am task-focused oriented, with an intense motivation to persistently learn and improve ultimately, such that my goals are closely aligned with the mastery orientation.
 
-However, my goals contrasts with the students, as they are long-term and personalized.
+However, my goals contrast with the students, as they are long-term and personalized.
 ## Notes: For Me.☺️
 
 *Goal Orientation*
