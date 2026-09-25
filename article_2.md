@@ -13,6 +13,6 @@ Clubs & Involvement: Wilfrid Laurier Brantford Theatre Club!🎭
 ![Was A "Gossip" In Jane Austin's Sense & Sensibility!](Theatre_Club_(Gossips).jpg)
 Played a "Gossip" in Jane Austin's Sense & Sensibility...
 
-![Wilfrid Laurier Brantford Theatre Club Group Photo!](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Theatre%20Club%20(Group%20Picture).jpg)
+![Wilfrid Laurier Brantford Theatre Club Group Photo!](Theatre_Club_(Group_Picture).jpg)
 ...with the Wilfrid Laurier (Brantford Campus) University's Theatre Club...
 - Theatre became a side-career!😎
