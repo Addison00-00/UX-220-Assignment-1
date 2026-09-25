@@ -12,4 +12,10 @@ than other students); *Mastery Goals.*
   - performance
 or ego-involving goals.
 
+- *Mastery Goal:* fosters a motivational pattern associated with a deeper level of engagement that
+secures and maintains achievement behavior; promotes internalization of the connection between effort and achievement.
+- *Performance Goal:* fosters
+a pattern of motivation associated with failure
+avoidance.
+
 *Goal Setting and theAutonomous Learner*
