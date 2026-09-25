@@ -10,8 +10,7 @@ However, my goals contrast with the students, as they are long-term and personal
 - two general goal orientations students can adopt:
   - task-focused orientation with an intrinsic focus
 on learning and improving and an ability-focused
-orientation with an extrinsic focus on external re-
-wards (e.g., getting good grades and doing better
+orientation with an extrinsic focus on external rewards (e.g., getting good grades and doing better
 than other students); *Mastery Goals.*
   - performance
 or ego-involving goals.
