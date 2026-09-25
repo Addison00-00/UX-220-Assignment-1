@@ -1,5 +1,5 @@
 ## Pursued Higher Education & Keeping In Touch!♾️
-![Never Stop Learning](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Pursuing%20Higher%20Education.JPG)
+![Never Stop Learning](Higher_Education.JPG)
 - Went back to University to pursue higher education and started a Master's Degree...
   
 F.R.I.E.N.D.S😎
