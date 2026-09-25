@@ -1,5 +1,5 @@
 ## Becoming "Addison" & Making Her Proud.🤍
 
-![Mini Version](https://github.com/Addison00-00/UX-220-Assignment-1/blob/main/Mini-Me.jpg)
+![Mini Version](Mini_Me.jpg)
 
 - My Personal Journey: Finding Happiness; Living the Fullest; Never Stop Growing & Learning.
