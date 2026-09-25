@@ -33,3 +33,5 @@ to use them.
 
 - appropriate goal setting, along with timely
 and specific feedback, can lead to higher achievement, better performance, a high level of self-efficacy, and self-regulation. 
+
+*Discussion And Conclusion*
