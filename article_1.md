@@ -4,6 +4,3 @@
 
 - Graduated with Honours Degree.
 - Was a Valedictorian at Convocation.
-
-![](Graduation Goals.JPG)
-
